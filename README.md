@@ -1,6 +1,7 @@
 # 160$ In Tweaks
 
 + Download: https://www.mediafire.com/file/vec9rnok76tsq4j/Opti_Leaks.zip/file
++ (se cair baixe do proprio github que fiz upload)
 + Password: 123
 + Credits: Joao Barci <3
 
