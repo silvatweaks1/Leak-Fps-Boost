@@ -1,7 +1,7 @@
 # 160$ In Tweaks
 
-+ Download: https://www.mediafire.com/file/vec9rnok76tsq4j/Opti_Leaks.zip/file
-+ (se cair baixe do proprio github que fiz upload)
++ Download: [Exm Aqui](https://www.mediafire.com/file/v07phrjme1jejsa/Exm+New+27$.zip/file)
++ (Download das .bat no proprio github, no mediafire somente o exm)
 + Password: 123
 + Credits: Joao Barci <3
 
